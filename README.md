@@ -1,1 +1,2 @@
-## κ©¥ ρ! λ ­ι¥? καν©  ©κ¤οΆ. 
+# Saleh Alamer - Software Developer 
+- Personal Profile and Projects 
